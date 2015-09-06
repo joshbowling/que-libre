@@ -17,6 +17,6 @@ Okay, so back to ethereal communication of shadows -- this is one way shadows ca
 
 5) This is not an exhaustive list. 
 
-**This is why there is ART to living, make science, love, war, violence. **
+**This is why there is ART to living, make science, love, war, violence.**
 
 **Thou art the artist. And your creation is just that, art.**
