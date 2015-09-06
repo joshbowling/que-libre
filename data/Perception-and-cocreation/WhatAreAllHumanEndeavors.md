@@ -1,6 +1,7 @@
 Someone observes something through 1 or more of his/her 5 senses which they then describe. This is a memory -- I'll call this a description of the described. I'll also call it a shadow of the "real".
 This person interprets the shadow by cross-referencing a shadow/shadow-derivative database. If an incoming shadow isn't matched in the database, the person tries to do so morphically (where morphically could work computationally like image recognition or even so-called AI). 
-These morphic shadows are derivative via the above process. So what are these processes? I can think of at least two.
+These morphic shadows are derivative via the above process. So what are these processes? I can think of at least what follows.
+
 1)  The power of suggestion certainly is. So when shadows are suggested through any number of mediums: verbally, symbolically, and ethereally (where ethereal would be like outward projected brainwaves at certain lengths or something more abstract like collective consciencousness) come to mind. I going to come back to ethereally, just bare with me as I have to change the subject.
 
 Recall the problem of observation as it was "observed" by Einsten and others? They realized that "looking for" any outcome changed the result of an experiment. What are these outcomes? They are shadows.
@@ -15,6 +16,6 @@ Okay, so back to ethereal communication of shadows -- this is one way shadows ca
 
 5) This is not an exhaustive list. 
 
-This is why there is ART to living, make science, love, war, violence. 
+** This is why there is ART to living, make science, love, war, violence. **
 
-Thou art the artist. And your creation is just that, art.
+** Thou art the artist. And your creation is just that, art.**
