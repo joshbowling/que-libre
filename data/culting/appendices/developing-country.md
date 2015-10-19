@@ -1,0 +1,2 @@
+# Developing Country
+This is what people who live in developed countries call other countries regardless of whether the country to which they refer has any desire to be developed, where you can be damn sure "developed" means co-opted into some fucked up international finance, trade scheme. Fuck that shit, I'd rather live in the god damn dirt. Trade your ways of life for some credit and some shiny bullshit.
