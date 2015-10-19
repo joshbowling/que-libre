@@ -1,146 +1,49 @@
-Quickly, What is a cult?
+# Quickly, What is a cult?
 From the outset, let's throw away everyone else definition and say a cult it this (when I say it): Propaganda if nothing else, but it's propaganda that's accepted as a primary location of belonging for a very small fragment of a larger set of people. Yes, incidentally, I'm calling you and me and everyone a propagandist. For my part herein, I'll be explaining this particular group's propaganda, not to judge but to share the experience for I hold it as dear and valuable as any other -- regardless whether it's "truth" as truth is just a concept and concepts are an adult's imaginary friends. (I hear some of your clever typies asking me if this is true -- and I tell you I don't know; truth is your pursuit and I'm with Pilate on this one.
 
 
 1. (Prologue) -- America in 48 hours
-	Raise Your Hand If You Don't Think America is Totally Fucked
-		After years of careless living on motorcycles, in hotels, in offices, without care. I took a look in the news, summer of 2014: unchecked immigration, never-ending war, ebola, imminent collapse of economy from robotics, and AI overlord. The profit-controlled, click-driven media aroused a level of anxiety for the future of the world (read society) -- a society of conformity to things to which I could never aspire: good credit (who gives a fuck what corporations "think"), a house (that you never own, but borrow until the government decides otherwise), fucking retirement in golden years. Really think about it -- how on an earth full of vivid experience, could you give a fuck about any of these trivialities and ponzi schemes. Sorry, but you have to be a total idiot -- I say this lovingly because I realize that I'm the one that ended up in a doomsday cult. 
-		The upshot, I saw the well-established order of things (which is definitely crumbling) in all out chaos; so you could say I was "open" to alternatives, especially when those alternatives were overtly embracing of apocolypse.
-		With this mindset, we started to watch #reality-questioning-videos on Youtube. The interesting thing about #AI (and yes Google already has AI, if you don't believe me find someone who can tell you the first 10 search results from any query (and the mechanics behind said results).
-			If you can't, then it's #AI -- and no I don't care if you disagree -- that's why I'm the author.
-		As anyone whose went down the recomended videos rabbit-hole, you'll like be quite entertained by a good thread. Well in this thread, we found the #second-coming [if you want to stop and watch the video now]. 
-		Within a week, we had sold all the possessions we could, wrapped all the ones we deemed of value in a tarp, strapped to the top of a 2005 Honda Civic; and no, there were no luggage racks. But we didn't care, the fucking world was ending in days or weeks. I still remember quite vividly: I said goodbye to two of my really good friends who came by at midnight under a gigantic moon in Charlotte NC, July 13th 2014. We chose a #more-northenly-route to miss the flood of illegal aliens pouring in across the southern border -- can you be too careful when you're trying to get out the country before it collapses?? We drove all night -- NC took a while as we had to stop a few times and adjust our load. TN at daybreak -- still remember that #Starbucks every time I've driven past it since. KY then MO.
-	(Bad Vibes near St Louis)
-		Before you wrap all of your belongings into a tarp and lash it to the hood of your car to drive acrss country, get tires first. That's easy to conclude after St. Louis.
-		6:00PM
-		Have you ever pulled up to a gas station where everyone looks completely strange only to realize that you're the strange one? There's much hostility and loathing in fear, there's tons of ugliness in Missouri. But the arches were amazing -- only learned later that Jefferson meant to signify door to Destined Manifestness.
-	Terror in Kansas
-		12:00 AM
-		Take a drive across KS on #I-whatever in the middle of the night when you think the world is ending: all those red flashing lights are the only sign of civilization aside from the large gas stations every 50 miles or so. We hit one of these around 3:00 AM. A car pulled in behind us in an otherwise empty establishment. As I walk out from paying, a woman bounds out of the aforementioned car and calls out to me, "Jesus!!!". I'm not kidding at all. She immediately asks me to take a picture with her. I'm so road weary and terried from this horrific landscape that I have no clue what to do, I look to Erica and ask her what she thinks, at this moment, my first-and-only acolyte turns around, walks back to the car, gets in, they drive off -- having done nothing else whatsoever at that gas station.
-	Oh Oh Color-ado-re
-		Dawn Monday
-		We cross into CO at dawn. It was literally a transformation at the state line. As terrifying as KS was, the whole fucking state, CO was majestic, deeply, movingly beautiful #yes-the-pics.
-		1PM
-		We stop for lunch just outside of Grand Junction #find-the-park and have the most profound picnic a the foot of these mountains, by the lake of the park. I didn't want to leave, and still don't. Let the world end right there.
-	You for Utah
-		3:00
-		As regal, enchanting, enthralling as CO is -- UT is it's surreal sibling. The bounty of red, orange, yellow, black, and gray substrate of UT's badlands is other-wordly. We drove, looking side to side as much as forward. Bewitching as it was, this is no place to fuck up. There are very few people on the road, and even fewer gas stations -- stop at every single one. The dry, thin, hot air really hit our fuel economy (along with obvious drag from the tarpload of life overhead). Incidentally, overhead held much more. We started to notice a legion of cloud people -- huge, well-defined beings doing all kinds of menacing things in the sky -- they were drifting, violent, terrifying... and all around as far as the eye could see. One-legged, two-headed, sword-brandishing, circus of cloud freaks doing unspeakable things to each other -- all the while smiling sinister at us. They seemed to emanate from the innumerable rock formations which have held evil spirits prisoner since the beginning of god. If you look hard enough, you'll see figures etched into the rock, there for eternity, until the Gates of Hades were opened -- which appeared to be happening right as were driving through. This went of for the whole of UT. At one point, we had to divert 30 miles for gas. It's not a great feeling when your car dips below half-tank with the Lord's white, airy army amassing above you. When we did find the smallest gas station known to non-mormons, we also used about $20 in change to drain the vending machine of all water -- fuck everyone else's survival.
-		7:00
-		We left the badlands behind slowly, heading into Nevada on I-70 when the most amazing thing happened. Erica noticed a cloud-being right in front of us, smiling once again. She flashed a rosary at it and the fucking thing's face flashed with lightning -- just that cloudhead. Now seems like a good time to remind you that I don't care what you're thinking right now; if you're skeptical, put the book down and go back to your boring ass life. Or, suspend your disbelief and come along with us.
-		10:00
-		Las Vegas. I can tell you there's no place we wanted to be less than sin fucking city at this particular juncture. The fact that it was literally 100' outside at 10PM was alarming to say the least. I get out to pump gas, and it's a blow-dryer burning wind sweeping across the city. And above, sat this ghastly, dark, massive, horned demon cloud. The fucking thing might as well have have been the Devil himself. The whole city his shrine -- we didn't waste time.
-		12:00AM Tuesday
-		CA
-		![racing to the border. We wanted in very badly only not to know what to do when we got there.]
-		The Mojave at Top Speed, in the middle of the night is even scarier than it sounds when the encircling weather and storms cutting off our routes. We find a way through to I-10 and bolt down toward El Centro and Running Red Lights. The cloud-beings have been following us this whole way, threatening to encircle us, wash away our Exodus. These last few miles were pure instinct over bridges, weaving around what traffic there was until we approached a 25mph zone portending the Mexican border. At said border stood an m16-armed guard who took one look look at and one look in our car and waved us out of America.
-		We had, in 52 hours traversed America, arrived in #Mexicali at 4AM, without any gas at all. This was not relieving whatsoever. Now's a great time to be wondering: what the fuck to do you at 4 in the morning in a dirty little town, with this complete design-fuck-up-of-a-main-drag for someone who'd been up 50 of the last 52 hours? Somehow I don't think a Mexican cop would care if I'd been up for 52 years, especially since I spoke no Spanish and have only ever #been-out-of-country-once when I was a kid. This was Erica's responsibilty and my liability. These circumstances, along with many others esoteric and abstract were weighing very heavily upon me in these crucial moments, near total break under these pressures. Terrified to stop, go; not knowing how, when, or why to turn left or right, where one lane ends and the other begins. Is that even a fucking lane? I'm going to Mexican fucking jail if I don't get my shit buckled down. 
+After years of careless living on motorcycles, in hotels, in offices, without care. I took a look in the news, summer of 2014: unchecked immigration, never-ending war, ebola, imminent collapse of economy from robotics, and AI overlord. The profit-controlled, click-driven media aroused a level of anxiety for the future of the world (read society) -- a society of conformity to things to which I could never aspire: good credit (who gives a fuck what corporations "think"), a house (that you never own, but borrow until the government decides otherwise), fucking retirement in golden years. Really think about it -- how on an earth full of vivid experience, could you give a fuck about any of these trivialities and ponzi schemes. Sorry, but you have to be a total idiot -- I say this lovingly because I realize that I'm the one that ended up in a doomsday cult. 
 
-		Should you find yourself in these circumstances, you will want to have exact directions that aren't dependant on your GPS, internet, etc as all of these items stopped working without any ceremony right around the time we crossed that border. Erica held it together for both us long enough to find a gas station. It's here that I first experienced the fear and loathing of a Mexican completely unprepared for this car, this person and this hour. Speaking of unprepared, do you think we had any pesos right now? Do you think we even knew where to get pesos at a respectable hour? Nevermind cartel:30 in the godamn morning? When Erica was finally able to secure some mutual understanding with the gas man, she returned to the pump where I stood watch a twitchy, burn-eyed watch over her, the car, the tarp, the girlie, the dog, cars that went by, the stray person or two wandering around. Erica tells me we can pump the gas now, inserts the card, and then is completely confused by the ensuing screens -- so much so that she has to re-approach the attendant, who is now thinking we're a couple of wild-eyed junkies and is starting to look as if the fear is getting the better of him. Of course, I watch this from the pump as I try to watch else all, not understanding one fucking thing that's being said. We finally had to move the car to another pump (having overcome the mexican computer in our first one). Here we secure gas. 
+The upshot, I saw the well-established order of things (which is definitely crumbling) in all out chaos; so you could say I was "open" to alternatives, especially when those alternatives were overtly embracing of apocolypse.
 
-		This still isn't what you call relief. Because where the fuck do you go from here? How do you call anyone?? Simple answer is that you don't.
+With this mindset, we started to watch #reality-questioning-videos on Youtube. The interesting thing about #AI (and yes Google already has AI, if you don't believe me find someone who can tell you the first 10 search results from any query (and the mechanics behind said results).
 
-		We finally decide our best choice is to find a motel. Yes, this is actually our best choice. How the fuck is this supposed to be an Exodus, from a society imminently collapsing and perhaps experiencing some terrifying natural disasters, to an inherently collapsed society? I still don't have the answer for this. But I can tell you the thought was fleet as we rolled down the street at 20mph evaluating our choices. We approach the #Posada-Inn. Erica says this is our best choice. She could've told me the sky above was pink and white herringbone and I would've listened and agreed out of fear, paranoia, and fatigue. We approach the gate (every building worth more than a hot turd has fence and gate around it), Erica speaks what I presume to be Spanish to the attendant. They let us in. 
+If you can't, then it's #AI -- and no I don't care if you disagree -- that's why I'm the author.
 
-		We 
-		The Posada Inn (need a pic of the pen)
-		The Road to Tecate
-		Beyond toward the misty city nestled in the craggy mountains
-		The Beach Hotel
-		No Internet & Fear of the End
-		Meeting Brother Vince -- The Archbishop of MX
-2. Raelity -- What do they believe in?
-	Raymond Lear & How They Know Him -- How Social Media Created Raelity
-		How They Know Him
-			Youtube
-				UN Diplomatic Video
-				???
-			Twitter
-				??
-			Angelus Domini (A Fused Spirit)
-				The head of Rayel's Church (Regent?)
-				see book on amazon for 13 pounds
-			The Channel Channel
-				Visions, Speakings, & Dreams
-					That Rayel Whispered to him as they watched one of his videos, even turning the video off and still hearing him.
+As anyone whose went down the recomended videos rabbit-hole, you'll like be quite entertained by a good thread. Well in this thread, we found the #second-coming [if you want to stop and watch the video now]. 
 
-			Healings
-				Claimed that his broken shoulder was instantly healed.
-		How He became Lord Rayel
-		Where is He?
-		Chastisements
-			The Sun
-			Natural Disasters
-	Pioneers
-		Leaving America
-		Mexican Motels Are Hazardous to Gringo Health
-			Paper Doors
-			Cartels
-		Finding the dief
-			Special Locations
+Within a week, we had sold all the possessions we could, wrapped all the ones we deemed of value in a tarp, strapped to the top of a 2005 Honda Civic; and no, there were no luggage racks. But we didn't care, the fucking world was ending in days or weeks. I still remember quite vividly: I said goodbye to two of my really good friends who came by at midnight under a gigantic moon in Charlotte NC, July 13th 2014. We chose a #more-northenly-route to miss the flood of illegal aliens pouring in across the southern border -- can you be too careful when you're trying to get out the country before it collapses?? We drove all night -- NC took a while as we had to stop a few times and adjust our load. TN at daybreak -- still remember that #Starbucks every time I've driven past it since. KY then MO.
 
-	The Torah Codes
-		The Coders
-			Richard Ruff
-			Emil 
-	The Church
-		Digital
-		Donations
+#### (Bad Vibes near St Louis)
+##### 12PM Saturday
+Before you wrap all of your belongings into a tarp and lash it to the hood of your car to drive acrss country, get tires first. That's easy to conclude after St. Louis.
+##### 6:00PM
+Have you ever pulled up to a gas station where everyone looks completely strange only to realize that you're the strange one? There's much hostility and loathing in fear, there's tons of ugliness in Missouri. But the arches were amazing -- only learned later that Jefferson meant to signify door to Destined Manifestness.
+#### Terror in Kansas
+##### 12:00 AM
+Take a drive across KS on #I-whatever in the middle of the night when you think the world is ending: all those red flashing lights are the only sign of civilization aside from the large gas stations every 50 miles or so. We hit one of these around 3:00 AM. A car pulled in behind us in an otherwise empty establishment. As I walk out from paying, a woman bounds out of the aforementioned car and calls out to me, "Jesus!!!". I'm not kidding at all. She immediately asks me to take a picture with her. I'm so road weary and terried from this horrific landscape that I have no clue what to do, I look to Erica and ask her what she thinks, at this moment, my first-and-only acolyte turns around, walks back to the car, gets in, they drive off -- having done nothing else whatsoever at that gas station.
+#### Oh Oh Color-ado-re
+##### Dawn Monday
+We cross into CO at dawn. It was literally a transformation at the state line. As terrifying as KS was, the whole fucking state, CO was majestic, deeply, movingly beautiful #yes-the-pics.
+##### 1PM
+We stop for lunch just outside of Grand Junction #find-the-park and have the most profound picnic a the foot of these mountains, by the lake of the park. I didn't want to leave, and still don't. Let the world end right there.
+#### You for Utah
+##### 3:00
+As regal, enchanting, enthralling as CO is -- UT is it's surreal sibling. The bounty of red, orange, yellow, black, and gray substrate of UT's badlands is other-wordly. We drove, looking side to side as much as forward. Bewitching as it was, this is no place to fuck up. There are very few people on the road, and even fewer gas stations -- stop at every single one. The dry, thin, hot air really hit our fuel economy (along with obvious drag from the tarpload of life overhead). Incidentally, overhead held much more. We started to notice a legion of cloud people -- huge, well-defined beings doing all kinds of menacing things in the sky -- they were drifting, violent, terrifying... and all around as far as the eye could see. One-legged, two-headed, sword-brandishing, circus of cloud freaks doing unspeakable things to each other -- all the while smiling sinister at us. They seemed to emanate from the innumerable rock formations which have held evil spirits prisoner since the beginning of god. If you look hard enough, you'll see figures etched into the rock, there for eternity, until the Gates of Hades were opened -- which appeared to be happening right as were driving through. This went of for the whole of UT. At one point, we had to divert 30 miles for gas. It's not a great feeling when your car dips below half-tank with the Lord's white, airy army amassing above you. When we did find the smallest gas station known to non-mormons, we also used about $20 in change to drain the vending machine of all water -- fuck everyone else's survival.
+##### 7:00
+We left the badlands behind slowly, heading into Nevada on I-70 when the most amazing thing happened. Erica noticed a cloud-being right in front of us, smiling once again. She flashed a rosary at it and the fucking thing's face flashed with lightning -- just that cloudhead. Now seems like a good time to remind you that I don't care what you're thinking right now; if you're skeptical, put the book down and go back to your boring ass life. Or, suspend your disbelief and come along with us.
+##### 10:00
+Las Vegas. I can tell you there's no place we wanted to be less than sin fucking city at this particular juncture. The fact that it was literally 100' outside at 10PM was alarming to say the least. I get out to pump gas, and it's a blow-dryer burning wind sweeping across the city. And above, sat this ghastly, dark, massive, horned demon cloud. The fucking thing might as well have have been the Devil himself. The whole city his shrine -- we didn't waste time.
+#### 12:00AM Sunday
+CA
+**![racing to the border. We wanted in very badly only not to know what to do when we got there.]**
+The Mojave at Top Speed, in the middle of the night is even scarier than it sounds when the encircling weather and storms cutting off our routes. We find a way through to I-10 and bolt down toward El Centro and Running Red Lights. The cloud-beings have been following us this whole way, threatening to encircle us, wash away our Exodus. These last few miles were pure instinct over bridges, weaving around what traffic there was until we approached a 25mph zone portending the Mexican border. At said border stood an m16-armed guard who took one look look at and one look in our car and waved us out of America.
 
-	Judaism, Xianity, Islam
-		the Madhi
-		The Moschiac
-		The Second Coming
-	America is Babylon/Great Satan
-	The Pope is the Whore
-	Obama is the Anti-Christ
-	Holy Putin
-	Occultism & Pop Culture
-		Ancient Aliens
-		Tarot
-		Nemesis, Nibiru, 
-	Transmission of Belief
-	Speculations
+We had, in 52 hours traversed America, arrived in #Mexicali at 4AM, without any gas at all. This was not relieving whatsoever. Now's a great time to be wondering: what the fuck to do you at 4 in the morning in a dirty little town, with this complete design-fuck-up-of-a-main-drag for someone who'd been up 50 of the last 52 hours? Somehow I don't think a Mexican cop would care if I'd been up for 52 years, especially since I spoke no Spanish and have only ever #been-out-of-country-once when I was a kid. This was Erica's responsibilty and my liability. These circumstances, along with many others esoteric and abstract were weighing very heavily upon me in these crucial moments, near total break under these pressures. Terrified to stop, go; not knowing how, when, or why to turn left or right, where one lane ends and the other begins. Is that even a fucking lane? I'm going to Mexican fucking jail if I don't get my shit buckled down. 
 
-	The Ecclesiastical Structure
-	The Garments
-	The Eschatology
-	Sex Sex Sex
-	Other Lives: Meet Samson, Elijah, Enki, Enlil, Jon the Baptist, 
-	New Bodies
-	The Mission -- To Isreal for Rayel's Coronation and the Rebuild Solomon's Temple
-The Sanctuary.
-	Arriving
-	Folklore of the Dief
-	Notes on Locale
-	Communal
-	Daily Life
-		Morning Meetings
-		Martial Arts
-		No Power
-		Two Bathrooms for 12 People
-		The Showers
-		Cartels Above
-		Internet Cafes
-	Nightly Life
-		Fires
-		Food
-		UFOS (yes for real)
-	Exceptional Works
-		The Poop Pit
-		The Garden
-		The Supermoon and colonies thereupon
-	Smells & Bells
-	All The 
-The goings on
-	The Sermons
-	Free Energy
-	Calling Rabbis
-	The too extreme Night Mother
-	Martial Arts
-	Seminars & Local Outreach
-	Going to America -- Take Protection & Permission
-	The Beach
-	Tiajuana KNights
-On Being Co-Opted
+Should you find yourself in these circumstances, you will want to have exact directions that aren't dependant on your GPS, internet, etc as all of these items stopped working without any ceremony right around the time we crossed that border. Erica held it together for both us long enough to find a gas station. It's here that I first experienced the fear and loathing of a Mexican completely unprepared for this car, this person and this hour. Speaking of unprepared, do you think we had any pesos right now? Do you think we even knew where to get pesos at a respectable hour? Nevermind `cartel:30` in the godamn morning? When Erica was finally able to secure some mutual understanding with the gas man, she returned to the pump where I stood watch a twitchy, burn-eyed watch over her, the car, the tarp, the girlie, the dog, cars that went by, the stray person or two wandering around. Erica tells me we can pump the gas now, inserts the card, and then is completely confused by the ensuing screens -- so much so that she has to re-approach the attendant, who is now thinking we're a couple of wild-eyed junkies and is starting to look as if the fear is getting the better of him. Of course, I watch this from the pump as I try to watch else all, not understanding one fucking thing that's being said. We finally had to move the car to another pump (having overcome the mexican computer in our first one). Here we secure gas. 
 
-Epilogue -- America in 72 nervy hours
+This still isn't what you call relief. Because where the fuck do you go from here? How do you call anyone?? Simple answer is that you don't.
+
+We finally decide our best choice is to find a motel. Yes, this is actually our best choice. How the fuck is this supposed to be an Exodus, from a society imminently collapsing and perhaps experiencing some terrifying natural disasters, to an inherently collapsed society? I still don't have the answer for this. But I can tell you the thought was fleet as we rolled down the street at 20mph evaluating our choices. We approach the #Posada-Inn. Erica says this is our best choice. She could've told me the sky above was pink and white herringbone and I would've listened and agreed out of fear, paranoia, and fatigue. We approach the gate (every building worth more than a hot turd has fence and gate around it), Erica speaks what I presume to be Spanish to the attendant. They let us in. 
