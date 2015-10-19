@@ -1,2 +1,2 @@
 # mexodus
-This is what I ~humorously~ lovingly call our trip to Mexico in retrospect. To be honest, I don't know if I could explain the gravity with which we undertook this trip. We really thought #martial-law, #natural-disasters, or some other equally heavy shit could break out at any moment. 
+This is what I ~~humorously~~ lovingly call our trip to Mexico in retrospect. To be honest, I don't know if I could explain the gravity with which we undertook this trip. We really thought #martial-law, #natural-disasters, or some other equally heavy shit could break out at any moment. 
