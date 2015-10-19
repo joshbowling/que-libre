@@ -1,4 +1,5 @@
-#What Are All Human Endeavors, As Revealed By Thinking About Science, Initially#
+# What Are All Human Endeavors, As Revealed By Thinking About Science, Initially #
+---
 Someone observes something through 1 or more of his/her 5 senses which they then describe. This is a memory -- I'll call this a description of the described. I'll also call it a shadow of the "real".
 This person interprets the shadow by cross-referencing a shadow/shadow-derivative database. If an incoming shadow isn't matched in the database, the person tries to do so morphically (where morphically could work computationally like image recognition or even so-called AI). 
 These morphic shadows are derivative via the above process. So what are these processes? I can think of at least what follows.
