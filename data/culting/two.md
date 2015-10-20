@@ -32,7 +32,7 @@ Beyond clearing the room of these donations, they had also swept and mopped, pla
 
 #### What Do You Know Abuout The Dollar Store?
 There's some cheaply made, poorly conceived, retail nonsense in American dollar stores. You could list all the things wrong with it, or right for that matter. This I promise you: [#mexican-dollar-stores](./appendices/mexican-dollar-stores.md) are only-and-over-stocked with shit that even American dollar stores don't `yet` have the gall to stock and hock. This notwithstanding, there isn't much in the way of retail right around rosarito beach. But we stuck close by as driving anywhere meant running in military road blocks where gringos are no doubt targets. We went through three of these and we're flagged to stop at all of them. 
-	And these soldiers -- either their terrified of or sponsored by the cartels -- the cartels are the real government #el-chapo for presidente! Erica told me regularly that I'm too white, this is what got us pulled over. It took me a while to really figure out that meant in application. I can tell you that I was terrified anytime I saw a the [#policia-municipal](./appendices/policial-municipal.md).
+	And these soldiers -- either their terrified of or sponsored by the cartels -- the cartels are the real government #el-chapo for presidente! Erica told me regularly that I'm too white, this is what got us pulled over. It took me a while to really figure out that meant in application. I can tell you that I was terrified anytime I saw a the [#policia-municipal](./appendices/policia-municipal.md).
 We found what we needed to clean our dorm. We found a old bookshelf in one of many apocalyptic piles of fallout that occupied the area between the gulley and our new residence.
 
 #### Josh & Erica feed ~~5,000~~ 16
@@ -58,7 +58,7 @@ I believe it was #kent who started the bonfire that night. Erica, in particular,
 	You mean #rael?
 	Yes, definitely. But also the #anunaki.
 
-	What can I read
+	What? It's the race the seeded humans to mine gold and #enlil is in charge of the planet and #enlil is #rael.
 
 
 
