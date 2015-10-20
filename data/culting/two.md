@@ -41,10 +41,11 @@ My first #baja-mexico-fire, I learned that fire is definitely a spirit of the la
 My new brethren enjoyed it, though #samson, the rotund #archbishop-of-mexico thought is was undercooked. He was also given to abrupt and startling visions of grandeur around the bonfire where he informed us he can't wait to be loved by millions after #new-jerusalem is revealed, post-apocalyptically of course. This isn't criticism for mis-apprehended beliefs -- that would be too rich indeed.
 
 #### Powerless Nights
-There's no doubt that sweltering is what you do most of the day, especially since the power lines end about 200 feet shy of the [#dief](./appendices/dief.md). Interestingly, it's wired, but no power line? I heard that the owner of the [#dief](./appendices/dief.md) actually ripped the power line up. I'll even speculate as to why: the wiring in the structures was complete shit and didn't want to repair, nor have his property further damaged. This is all hearsay, though -- what else are you going to find in Mexico?
-But yes, 200 ft shy, perfect metaphor for the pervasive pettiness of the locale. Oddly, pettiness takes away, but it also giveth -- pettiness would be pissed off if it knew this. In particular it allowed for the most amazing nightscapes, the first of which we enjoyed after this, our commemorative day at #sanctuary. If the milkyway has never been your primary source of light, then can't possibly imagine beauty it imbues in every moment you gaze at it and dance (ahem metaphorically) under it. This was one of the only sources of [#truth](./appendices/truth.md) I was to find while I was there.
+There's no doubt that sweltering is what you do most of the day, especially since the power lines end about 200 feet shy of the [#dief](./appendices/dief.md). Interestingly, it's wired, but no power line? I heard that the owner of the [#dief](./appendices/dief.md) actually ripped the power line up. I'll even speculate as to why: the wiring in the structures was complete shit and he didn't want to repair, nor have his property damaged. This is all hearsay, though -- what else are you going to find in Mexico, proof `...chuckles`?
+But yes, 200 ft shy, perfect metaphor for the pervasive pettiness of the locale. Oddly, pettiness takes away, but it also giveth -- pettiness would be pissed off if it knew this. In particular it gave the darkness which yielded the most amazing nightscapes; the first of which we enjoyed after this, our commemorative day at #sanctuary. If the milkyway has never been your primary source of light, then can't possibly imagine the beauty it imbues in every moment which you gaze at it and dance (ahem metaphorically) under it. This was one of the only sources of [#truth](./appendices/truth.md) I was to find while I was there.
 
 I believe it was #kent who started the bonfire that night. Erica, in particular, asked questions: 
+
 	has anyone met lord rayel? 
 	no, but we're in communication with him.
 
@@ -52,10 +53,12 @@ I believe it was #kent who started the bonfire that night. Erica, in particular,
 	There's much more, says #john, It's all disclosed in time.
 
 	Are you all worried about being out here, it seems like pretty dangerous country?
-	We're have protection, #john points to the sky.
+	We have protection, #john points to the sky.
 
 	You mean #rael?
 	Yes, definitely. But also the #anunaki.
 
-	
+	What can I read
+
+
 
