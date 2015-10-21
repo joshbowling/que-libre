@@ -42,23 +42,35 @@ My new brethren enjoyed it, though #samson, the rotund #archbishop-of-mexico tho
 
 #### Powerless Nights
 There's no doubt that sweltering is what you do most of the day, especially since the power lines end about 200 feet shy of the [#dief](./appendices/dief.md). Interestingly, it's wired, but no power line? I heard that the owner of the [#dief](./appendices/dief.md) actually ripped the power line up. I'll even speculate as to why: the wiring in the structures was complete shit and he didn't want to repair, nor have his property damaged. This is all hearsay, though -- what else are you going to find in Mexico, proof `...chuckles`?
-But yes, 200 ft shy, perfect metaphor for the pervasive pettiness of the locale. Oddly, pettiness takes away, but it also giveth -- pettiness would be pissed off if it knew this. In particular it gave the darkness which yielded the most amazing nightscapes; the first of which we enjoyed after this, our commemorative day at #sanctuary. If the milkyway has never been your primary source of light, then can't possibly imagine the beauty it imbues in every moment which you gaze at it and dance (ahem metaphorically) under it. This was one of the only sources of [#truth](./appendices/truth.md) I was to find while I was there.
+But yes, 200 ft shy, perfect metaphor for the pervasive pettiness of the locale. Oddly, pettiness takes away, but it also giveth -- pettiness would be pissed off if it knew this. In particular it gave the darkness which yielded the most amazing nightscapes; the first of which we enjoyed after this, our commemorative day at #sanctuary. If the milkyway has never been your primary source of light, then can't possibly imagine the beauty it imbues every moment which you gaze at it or dance (ahem metaphorically) under it. This was one of the only sources of [#truth](./appendices/truth.md) I was to find while I was there.
 
 I believe it was #kent who started the bonfire that night. Erica, in particular, asked questions: 
 
 	has anyone met lord rayel? 
 	no, but we're in communication with him.
-
+---
 	Is there anything more than the #lord-rayel-youtube-videos? 
 	There's much more, says #john, It's all disclosed in time.
-
+---
 	Are you all worried about being out here, it seems like pretty dangerous country?
 	We have protection, #john points to the sky.
-
+---
 	You mean #rael?
-	Yes, definitely. But also the #anunaki.
+	Yes, definitely. But also the #anunaki. We're safe here, trust me.
+---
+	What are the #anunaki?
+	It's the race the seeded humans to mine gold and #enlil is in charge of the planet and #enlil is #rael.
+---
+#john also tells us things are going to start happening fast, we're lucky to have gotten out of [#babylon](./appendices/babylon.md). He expects the border to be shut down soon and for martial law to go into affect. Indeed, #john claims they we have a lot of work to do in preparation. The lord has given us a design for a free energy device, #john continues. #enki is working on it, would you like to help, josh? Sure, I'd be happy to.
 
-	What? It's the race the seeded humans to mine gold and #enlil is in charge of the planet and #enlil is #rael.
+Erica keeps her eye on information and presses
+	Is there anything we can read?
+	The Bible, especially the books that were left out, and the Gospel of Angelus, the books of Zecharia Sitchin. We also have a school for clergy, we might be able to get you into that at the right time. 
 
+#kent tells us there's a meeting every morning around 10AM to discuss what will be done today. After that we can follow them to the internet cafe.
+
+We got some answers for the night. The conversation wanes, the fire dies. We go to our dorm. It hasn't cooled off much yet. We open all four of the windows we have and spray ourselves down with deet. Amazing in the desert they're plenty of mosquitos when grey water from the showers run out mere feet away form open windows. We put girlie in the tent we brought so she doesn't get bit.
+
+Erica makes a list of everything we need to try to find tomorrow to make this place more livable. This is list she'll make and remake. We pray.
 
 
