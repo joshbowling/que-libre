@@ -61,13 +61,14 @@ I believe it was #kent who started the bonfire that night. Erica, in particular,
 	What are the #anunaki?
 	It's the race the seeded humans to mine gold and #enlil is in charge of the planet and #enlil is #rael.
 ---
-#john also tells us things are going to start happening fast, we're lucky to have gotten out of [#babylon](./appendices/babylon.md). He expects the border to be shut down soon and for martial law to go into affect. Indeed, #john claims they we have a lot of work to do in preparation. The lord has given us a design for a free energy device, #john continues. #enki is working on it, would you like to help, josh? Sure, I'd be happy to.
+
+Also, [#john](./appendices/john.md) tells us things are going to start happening fast, we're lucky to have gotten out of [#babylon](./appendices/babylon.md). He expects the border to be shut down soon and for martial law to go into affect. Indeed, #john claims they we have a lot of work to do in preparation. The lord has given us a design for a free energy device, #john continues. #enki is working on it, would you like to help, josh? Sure, I'd be happy to.
 
 Erica keeps her eye on information and presses
 	Is there anything we can read?
 	The Bible, especially the books that were left out, and the Gospel of Angelus, the books of Zecharia Sitchin. We also have a school for clergy, we might be able to get you into that at the right time. 
 
-#kent tells us there's a meeting every morning around 10AM to discuss what will be done today. After that we can follow them to the internet cafe.
+[#kent](./appendices/kent.md) tells us there's a meeting every morning around 10AM to discuss what will be done today. After that we can follow them to the internet cafe.
 
 We got some answers for the night. The conversation wanes, the fire dies. We go to our dorm. It hasn't cooled off much yet. We open all four of the windows we have and spray ourselves down with deet. Amazing in the desert they're plenty of mosquitos when grey water from the showers run out mere feet away form open windows. We put girlie in the tent we brought so she doesn't get bit.
 
