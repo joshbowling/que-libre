@@ -8,17 +8,9 @@ I came to where the wind always blows and found her.
 
 > What?
 
-> Look here, the wind turned to [#ezekiel-36-thru-39](./appendices/ezekiel-36-thru-39.md). See:
+> Look here, the wind turned to [#ezekiel-36-thru-39](./appendices/ezekiel-36-thru-39.md).
 
-	8.'But you, O mountains of Israel, will produce branches and fruit for my people Israel, for they will soon come home.
-
-	9 I am concerned for you and will look on you with favor; you will be plowed and sown,
-
-	10 and I will multiply the number of people upon you, even the whole house of Israel. The towns will be inhabited and the ruins rebuilt.
-
-	11 I will increase the number of men and animals upon you, and they will be fruitful and become numerous. I will settle people on you as in the past and will make you prosper more than before. Then you will know that I am the LORD.
-
-	12 I will cause people, my people Israel, to walk upon you. They will possess you, and you will be their inheritance; you will never again deprive them of their children.
+	8.'But you, O mountains of Israel, will produce branches and fruit for my people Israel, for they will soon come home. 9 I am concerned for you and will look on you with favor; you will be plowed and sown, 10 and I will multiply the number of people upon you, even the whole house of Israel. The towns will be inhabited and the ruins rebuilt. 11 I will increase the number of men and animals upon you, and they will be fruitful and become numerous. I will settle people on you as in the past and will make you prosper more than before. Then you will know that I am the LORD. 12 I will cause people, my people Israel, to walk upon you. They will possess you, and you will be their inheritance; you will never again deprive them of their children.
 
 > This sounds like it's already happened, right?
 
@@ -63,6 +55,7 @@ I cried and groveled because I didn't know what I'd do without her and losing so
 
 > Look, I can handle this. We'll figure out this internet thing and I'll be able to find work.
 
-It felt an incredible sense of relief that this. It hadn't even crossed my mind to be without her. I'd become quite attached in way that she was inherently recalcitrant to recipricate. She'd concluded never to trust anyone and girlie was her daughter. I'd only been part of their dynamic for less than a year. I was a fucking child still, Erica knew this, but saw my potential, with obvious exceptions, like this one.
+It felt an incredible sense of relief that this. It hadn't even crossed my mind to be without her. I'd become quite attached in way that she was inherently recalcitrant to recipricate. She'd concluded never to trust anyone and girlie was her daughter. I'd only been part of their dynamic for less than a year. I was a fucking child still, Erica knew this, but saw my potential, with obvious exceptions, like this one. This would be my first encounter with the thought of losing her and stirred up deep insecurities about my own ability, a.k.a food for the appetite of a sulker, someone who plays around in life. Someone like me.
 
-This would be my first encounter with the thought of losing her and stirred up deep insecurities about my own ability, a.k.a food for the appetite of a sulker, someone who plays around in life. Someone like me.
+Nevertheless, I happily took leave of this mental space at the soonest possible convenience though I knew she had lost some respect for me in this journey. And losing respect was as good death in a relationship.
+
